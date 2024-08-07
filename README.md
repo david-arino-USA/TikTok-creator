@@ -18,4 +18,4 @@ TikTok 帐户创建器
 
 联系方式：
 
-TeleGram：https://t.me/anisarino
+Telegram https://t.me/mariabosser
